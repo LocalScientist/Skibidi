@@ -1,39 +1,48 @@
 
 *✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:
-𝘏𝘪𝘺𝘢 𝘨𝘰𝘰𝘣𝘦𝘳𝘴! 𝘮𝘺 𝘯𝘢𝘮𝘦 𝘪𝘴 𝙢𝙖𝙧𝙜𝙤 ! . 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘢𝘭𝘴𝘰 𝘤𝘢𝘭𝘭 𝘮𝘦 𝘢𝘮𝘺 / 𝘤𝘳𝘶𝘮𝘣𝘭𝘦 / 𝘵𝘰𝘰𝘵𝘩𝘱𝘢𝘴𝘵𝘦 / 𝘮𝘢𝘳𝘫𝘦𝘸 / 𝘥𝘦𝘭𝘪𝘭𝘢𝘩
+hiya there! my name is margo! . but you can also call me amy / crumble / toothpaste / marjew / delilah / emma
 ✼ •• ┈┈┈┈๑⋅⋯ ୨˚୧ ⋯⋅๑┈┈┈┈ •• ✼
-𝘐 𝘥𝘳𝘢𝘸 𝘰𝘯 𝘣𝘰𝘵𝘩 𝘵𝘳𝘢𝘥𝘪𝘵𝘪𝘰𝘯𝘢𝘭 𝘢𝘯𝘥 𝘥𝘪𝘨𝘪𝘵𝘢𝘭! 𝘐 𝘭𝘪𝘬𝘦 𝘱𝘳𝘢𝘤𝘵𝘪𝘤𝘪𝘯𝘨 𝘢𝘯𝘢𝘵𝘰𝘮𝘺 𝘢𝘯𝘥 𝘮𝘰𝘳𝘦:𝘋
+𝘐 𝘥𝘳𝘢𝘸 𝘰𝘯 𝘣𝘰𝘵𝘩 𝘵𝘳𝘢𝘥𝘪𝘵𝘪𝘰𝘯𝘢𝘭 𝘢𝘯𝘥 𝘥𝘪𝘨𝘪𝘵𝘢𝘭! 𝘐𝘮 𝘱𝘳𝘢𝘤𝘵𝘪𝘤𝘪𝘯𝘨 𝘢𝘯𝘢𝘵𝘰𝘮𝘺 𝘯 𝘴𝘵𝘶𝘧𝘧 ^^
 
-𝘐𝘮 𝘯𝘦𝘳𝘷𝘰𝘶𝘴 𝘵𝘰 𝘴𝘰𝘤𝘪𝘢𝘭𝘪𝘻𝘦 𝘮𝘺𝘴𝘦𝘭𝘧 𝘐 𝘱𝘰𝘯𝘺𝘵𝘰𝘸𝘯, 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘐'𝘮 𝘫𝘶𝘴𝘵 𝘯𝘦𝘳𝘷𝘰𝘶𝘴 𝘵𝘰 𝘵𝘢𝘭𝘬 𝘴𝘰.. 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏 𝙄𝙁 𝙔𝘼 𝙒𝘼𝙉𝙏𝙏😭😭 𝘐'𝘔 𝘈 𝘓𝘖𝘕𝘌𝘓𝘠 𝘗𝘌𝘙𝘚𝘖𝘕𝘕
+I'm nervous to socialize myself in ponytown,sometimes I'm just nervous to talk:[
+interacting w/ me makes me comfortable ! 
+^_^
 
-𝘐 𝘮𝘰𝘴𝘵𝘭𝘺 𝘫𝘰𝘪𝘯 𝘋𝘢𝘯𝘥𝘺𝘴 𝘸𝘰𝘳𝘭𝘥 𝘳𝘰𝘭𝘦𝘱𝘭𝘢𝘺𝘴, 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴 𝘸𝘩𝘪𝘵𝘦𝘣𝘰𝘢𝘳𝘥 𝘧𝘰𝘹𝘦𝘴! 𝘐'𝘮 𝘯𝘰𝘵 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘦𝘥 𝘐𝘯 𝘵𝘩𝘦 𝘰𝘵𝘩𝘦𝘳 𝘙𝘗𝘚 𝘋:
+I mostly join Dandys world roleplays, sometimes whiteboard foxes! I'm not really interested in other RPS :(
 
-𝘐 𝙇𝙊𝙑𝙀 𝘞𝘓𝘞 𝘳𝘦𝘭𝘢𝘵𝘪𝘰𝘯𝘴𝘩𝘪𝘱𝘴 . 𝘪𝘧 𝘺𝘰𝘶'𝘳𝘦 𝘢𝘭𝘴𝘰 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘦𝘥 𝘪𝘯𝘵𝘰 𝘵𝘩𝘰𝘴𝘦 𝘽𝙀 𝙈𝙔 𝙁𝙍𝙄𝙀𝙉𝘿 𝙉𝙊𝙒!! 1 (𝘯𝘰𝘵 𝘧𝘰𝘳𝘤𝘪𝘯𝘨 𝘣𝘵𝘸)
-
-𝘐'𝘮 𝘢 𝘍𝘪𝘭𝘪𝘱𝘪𝘯𝘰 𝘩𝘦𝘩.  (𝘜𝘠 𝘗𝘏𝘐𝘓𝘐𝘗𝘐𝘕𝘌𝘚 🔥🔥🔥🇵🇭🇵🇭🇵🇭🇵🇭🇵🇭🇵🇭🇵🇭🇵🇭🇵🇭) 
-𝘐 𝘤𝘳𝘢𝘷𝘦 𝘧𝘰𝘳 𝘭𝘶𝘮𝘱𝘪𝘢 𝘴𝘰 𝘣𝘢𝘥.
-
-𝘐 𝘩𝘢𝘷𝘦 𝘢 𝘸𝘪𝘧𝘦 & 𝘐 𝘭𝘰𝘷𝘦 𝘩𝘦𝘳 ^_^ ( 𝘴𝘦𝘳𝘪𝘰𝘶𝘴𝘭𝘺 𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶 𝘕𝘪𝘤𝘬𝘺 )
+I love yuri stuff.  👭 
 
 
-𝙄 𝙡𝙞𝙨𝙩𝙚𝙣 𝙩𝙤 𝘼𝙡𝙚𝙭 𝙜, 𝙇𝙖𝙪𝙛𝙚𝙮, 𝙢𝙞𝙩𝙨𝙠𝙞 & 𝘼𝙙𝙤 𝙨𝙤𝙣𝙜𝙨 <3
+I have a wife & i love her ^_^ ( seriously i love you Nicky )
 
-𝘐𝘧 𝘺𝘰𝘶'𝘳𝘦 𝘯𝘦𝘳𝘷𝘰𝘶𝘴 𝘵𝘰 𝘢𝘱𝘱𝘳𝘰𝘢𝘤𝘩 𝘮𝘦, 𝘥𝘰𝘯'𝘵 𝘣𝘦 𝘴𝘩𝘺! 𝘐'𝘮 𝘧𝘳𝘪𝘦𝘯𝘥𝘭𝘺:𝘋 𝘊+𝘏 𝘢𝘳𝘦 𝘢𝘭𝘴𝘰 𝘢𝘭𝘭𝘰𝘸𝘦𝘥! 𝘐'𝘮 𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦 𝘸𝘪𝘵𝘩 𝘱𝘦𝘰𝘱𝘭𝘦 𝘩𝘪𝘥𝘪𝘯𝘨 𝘣𝘦𝘩𝘪𝘯𝘥 𝘮𝘦 
+
+I listen to Laufey, Alex G, Chappell Roan, Ado and Mitski songs! ^^ big fan of these people! 
+
+if you're nervous to approach me, don't be shy! im friendly:D C+H are also allowed! I'm comfortable 𝘸ith people hiding behind me 
 
 ꒷︶꒷꒥꒷‧₊˚꒷︶꒷꒥꒷‧₊˚
 
 𝘉𝘶𝘵 𝘥𝘯𝘪 𝘪𝘧 𝘺𝘰𝘶'𝘳𝘦 𝘪𝘯 the following 𝘧𝘢𝘯𝘥𝘰𝘮𝘴, 𝘴𝘵𝘶𝘧𝘧, 𝘦𝘵𝘤 :𝘤 𝘐'𝘮 𝘴𝘰𝘳𝘳𝘺) 
 
-𝙏𝘾𝙊𝘼𝙇
+tcoal
 
-𝙋𝙍𝙊𝙎𝙃𝙄𝙋𝙋𝙀𝙍𝙎
+Proshippers
 
-𝙋3𝘿0£𝙄𝙇𝙀$
+P3d0£1L3s
 
-→𝙎𝙊𝙈𝙀← 𝘧𝘳𝘶𝘪𝘵𝘤𝘢𝘬𝘦 𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴
+→𝗦𝗢𝗠𝗘← fruitcake shippers
 
 ＊┈┈┈┈＊┈┈┈┈＊┈┈┈┈
 
-𝘴𝘬𝘪𝘣𝘪𝘥𝘪 𝘵𝘰𝘪𝘭𝘦𝘵
+Add my rblx ^_^
+
+bunny_xxemectronic! 
+
+I'm gonna make a strawpage soon! 
+
+•┈┈┈••✦ ♡ ✦••┈┈┈•
+
+ty for reading! ^^ I appreciate it
+
 
 
