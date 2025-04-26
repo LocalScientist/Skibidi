@@ -3,7 +3,7 @@
 hiya there! my name is margo! . but you can also call me amy / crumble / toothpaste / marjew / delilah / emma
 ✼ •• ┈┈┈┈๑⋅⋯ ୨˚୧ ⋯⋅๑┈┈┈┈ •• ✼
 
-• 𝘐 𝘥𝘳𝘢𝘸 𝘰𝘯 𝘣𝘰𝘵𝘩 𝘵𝘳𝘢𝘥𝘪𝘵𝘪𝘰𝘯𝘢𝘭 𝘢𝘯𝘥 𝘥𝘪𝘨𝘪𝘵𝘢𝘭! 𝘐𝘮 𝘱𝘳𝘢𝘤𝘵𝘪𝘤𝘪𝘯𝘨 𝘢𝘯𝘢𝘵𝘰𝘮𝘺 and color theory ^
+• 𝘐 𝘥𝘳𝘢𝘸 𝘰𝘯 𝘣𝘰𝘵𝘩 𝘵𝘳𝘢𝘥𝘪𝘵𝘪𝘰𝘯𝘢𝘭 𝘢𝘯𝘥 𝘥𝘪𝘨𝘪𝘵𝘢𝘭! 𝘐𝘮 𝘱𝘳𝘢𝘤𝘵𝘪𝘤𝘪𝘯𝘨 𝘢𝘯𝘢𝘵𝘰𝘮𝘺 and color theory ^^
 
 • I'm nervous to socialize myself in ponytown,sometimes I'm just nervous to talk:[
 interacting w/ me makes me comfortable ! 
