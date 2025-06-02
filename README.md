@@ -39,6 +39,14 @@ Add my rblx ^_^
 
 • bunny_xxemectronic 
 
+discord !! 
+
+:: Definitely_graace
+
+TikTok <3
+
+:: @justanordinaryperson03
+
 I'm gonna make a strawpage soon! 
 
 •┈┈┈••✦ ♡ ✦••┈┈┈•
