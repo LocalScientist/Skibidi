@@ -9,7 +9,7 @@ hiya there! my name is margo! . but you can also call me amy / crumble / toothpa
 interacting w/ me makes me comfortable ! 
 ^_^
 
-• I mostly join Dandys world roleplays, sometimes whiteboard foxes! I'm not really interested in other RPS :(
+• I mostly join Dandys world and forsaken roleplays sometimes whiteboard foxes! I'm not really interested in other RPS :(
 
 I love yuri stuff.  👭 
 
@@ -55,7 +55,11 @@ TikTok <3
 ↻ ◁ II ▷ ↺
 
 
-I'm gonna make a strawpage soon! 
+` • 𝗙𝗼𝗿𝘀𝗮𝗸𝗲𝗻 , 𝗨𝗻𝗱𝗲𝗿𝘁𝗮𝗹𝗲 , 𝗗𝗮𝗻𝗱𝘆𝘀 𝘄𝗼𝗿𝗹𝗱 , 𝗦𝗾𝘂𝗶𝗱 𝗴𝗮𝗺𝗲 , 𝗞𝗮𝗶𝗷𝘂 𝗽𝗮𝗿𝗮𝗱𝗶𝘀𝗲 , 𝗧𝗵𝗲 𝗽𝗿𝗼𝗺𝗶𝘀𝗲𝗱 𝗻𝗲𝘃𝗲𝗿𝗹𝗮𝗻𝗱 , 𝗠𝘂𝗿𝗱𝗲𝗿 𝗱𝗿𝗼𝗻𝗲𝘀 , 𝗙𝗿𝗶𝗱𝗮𝘆 𝗻𝗶𝗴𝗵𝘁 𝗳𝘂𝗻𝗸𝗶𝗻, 𝗙𝗽𝗲
+
+↑
+
+^^ 𝖧𝖾𝖺𝗏𝗒 𝗂𝗇𝗍 ! 
 
 •┈┈┈••✦ ♡ ✦••┈┈┈•
 
