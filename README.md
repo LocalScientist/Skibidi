@@ -14,7 +14,9 @@ interacting w/ me makes me comfortable !
 I love yuri stuff.  👭 
 
 
-I have a wife & i love her ^_^ ( seriously i love you Nicky )
+━━━━━━━━━━━━━━━━━━━━━━━━
+
+
 
 
 • I listen to Laufey, Alex G, Chappell Roan, Ado and Mitski songs! ^^ big fan of these people! 
@@ -27,7 +29,7 @@ but dni if you're in the following fandoms , stuff, etc :𝘤 I'm sorry)
 
 tcoal
 
-Proshippers
+Pr𝟢sh𝟣𝗉𝗉𝟥𝗋$
 
 P3d0£1L3s
 
